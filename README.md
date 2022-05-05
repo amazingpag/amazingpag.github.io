@@ -1,3 +1,3 @@
 # amazingpag.github.io
 
-lets go
+lets go!
